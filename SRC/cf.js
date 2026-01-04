@@ -1,2 +1,0 @@
-CF:MynVzj0oiZrCVSAWp_0q9WUqYrwMF4Sgzy1uzVBp
-github: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
